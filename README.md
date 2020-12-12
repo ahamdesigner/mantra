@@ -2,6 +2,6 @@
 digital mantra
 # राज गोपाल महामन्त्र
 कृष्ण कृष्ण महाकृष्ण
-Sarvanja Thwam Praseedame
-Rema Remana Vishwesha
-Vidyamashu Prayacheme
+स्रवज्झ त्वं प्रसीधमे
+रेमा रेमण विश्वेश
+विद्यमषु प्रयझमे
